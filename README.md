@@ -50,6 +50,3 @@ Vaishnavi Kulkarni
 📅 November 2025
 📧 [vaishnavikulkarni9280@gmail.com]
 🔗https://www.linkedin.com/in/vaishnavi-kulkarni-767266381?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
-Vaishnavi Kulkarni
-📅 November 2025
-📧 [Your Email Here]
